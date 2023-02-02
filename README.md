@@ -1,8 +1,8 @@
 ## Hey there!
 My name's María Jesús, but please call me *Jech*.
-(Pronouns: she/her)
+(Pronouns: they/she)
 
-Born and raised in San José de Maipo, Chile. I've been living in Madrid for a while now and I'm looking for new opportunities to learn and challenge myself. I've lived in different countries, which has taught me to adapt easily and accept challenges with great enthusiasm.
+Born and raised in San José de Maipo, Chile. I've been living in Madrid for a while now and I'm always looking for new opportunities to learn and challenge myself. I've lived in different countries, which has taught me to adapt easily and accept challenges with great enthusiasm.
 
 I like to keep on learning new things in order to unleash my creativity, which has been my best ally for years.
 
