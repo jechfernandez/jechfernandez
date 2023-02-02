@@ -1,6 +1,7 @@
 ## Hey there!
-My name's María Jesús, but please call me *Jech*.
+My name's María Jesús, but please call me *Jech* (you can pronounce it like the word hedge)
 (Pronouns: they/she)
+
 
 Born and raised in San José de Maipo, Chile. I've been living in Madrid for a while now and I'm always looking for new opportunities to learn and challenge myself. I've lived in different countries, which has taught me to adapt easily and accept challenges with great enthusiasm.
 
